@@ -40,4 +40,8 @@
 　　　　　.　　　　　　　　　　⠀✦
 　˚　　　　　　　　　　　　　　*　　　　　
  
-`[@cosmooirl](https://github.com/cosmooirl)` To my dearest Cousin Cosmo..I hope you read this and realize just how bad of an issue it has become, your obsession with sprout is terrifying. I cannot even sit in call without you mentioning the things you want twisted sprout to do to your rear end..His tentacles are not gonna tickle your hole and you need to come back to reality. Along with the things you say about non-twisted sprout. the fact you can TELL when it is his floor before the elevator opens, the fact you can tell twisted sprout is on the floor before the elevator opens..you need to step away from the game and fandom, and touch grass. and no, sprourts leaves do not count as grass touching you. please shower. Sincerely, Ginger.
+[@cosmooirl](https://github.com/cosmooirl) To my dearest Cousin Cosmo..I hope you read this and realize just how bad of an issue it has become, your obsession with sprout (image below) is terrifying. I cannot even sit in call without you mentioning the things you want twisted sprout to do to your rear end..His tentacles are not gonna tickle your hole and you need to come back to reality. Along with the things you say about non-twisted sprout. the fact you can TELL when it is his floor before the elevator opens, the fact you can tell twisted sprout is on the floor before the elevator opens..you need to step away from the game and fandom, and touch grass. and no, sprourts leaves do not count as grass touching you. please shower. Sincerely, Ginger.
+
+<img width="1016" height="1016" alt="image" src="https://github.com/user-attachments/assets/611372e4-602f-4f99-845b-78ed00f8e97c" /> <img width="250" height="495" alt="image" src="https://github.com/user-attachments/assets/986968ff-9ddf-4a8c-a2db-0cc78f65a409" />
+
+
