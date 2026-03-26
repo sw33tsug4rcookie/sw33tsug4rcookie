@@ -1,20 +1,7 @@
 # WILL BE REMADE SOON !!
-⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-　　　　　　*　　　　　　　　　　　.
-.　　　　☾　　　　　　　　　. 　　✦⠀　,　
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀.　　　　　 　　⠀　　　⠀.　
-　　˚　　　⠀　⠀  　　,　　　　　　.
-　　　　　　　　　　　　　.
-　　　　　　*⠀　　⠀  ✮　　　　　⠀✦⠀　
-　　　　　　　　　　　　　　　　　　.
-　　　　.　　　　.　　　⠀
-　　　　✩　　　　　　　.
-　　　　　　　
-　　　˚　　　　　　　　ﾟ　　　　　.
-　.⠀　　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀,
-　　　*　　⠀.★
-　　　　　.　　　　　　　　　　⠀✦
-　˚　　　　　　　　　　　　　　*　　　　　
+<img width="230" height="29" alt="image" src="https://github.com/user-attachments/assets/bc747970-b51f-4009-9547-c00cd56feb51" />
+<img width="230" height="29" alt="image" src="https://github.com/user-attachments/assets/b50e5115-a2a5-4661-b835-7135ff412164" />
+　　　
 
 <br><p align="center"> <img width="736" height="408" alt="image" src="https://github.com/user-attachments/assets/da1a5f46-4e8f-49e8-b4e7-ccd5f1dc43ed" />
 
