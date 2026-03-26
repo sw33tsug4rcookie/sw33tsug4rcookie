@@ -1,7 +1,6 @@
 # WILL BE REMADE SOON !!
 <img width="230" height="29" alt="image" src="https://github.com/user-attachments/assets/bc747970-b51f-4009-9547-c00cd56feb51" />
-<img width="230" height="29" alt="image" src="https://github.com/user-attachments/assets/b50e5115-a2a5-4661-b835-7135ff412164" />
-　　　
+<img width="230" height="29" alt="image" src="https://github.com/user-attachments/assets/b50e5115-a2a5-4661-b835-7135ff412164" /> <img width="230" height="29" alt="image" src="https://github.com/user-attachments/assets/ac3b01cc-7821-43dc-a22b-03dbc13fb69c" /><img width="230" height="29" alt="image" src="https://github.com/user-attachments/assets/d38930cd-f45d-4b8a-b32e-12eeafebe4c7" />
 
 <br><p align="center"> <img width="736" height="408" alt="image" src="https://github.com/user-attachments/assets/da1a5f46-4e8f-49e8-b4e7-ccd5f1dc43ed" />
 
@@ -13,22 +12,10 @@
 <br><p align="center"> Astro yume . Ginger irl 
 <br><p align="center"> Hi Cosmo!!
 
-⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-　　　　　　*　　　　　　　　　　　.
-.　　　　☾　　　　　　　　　. 　　✦⠀　,　
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀.　　　　　 　　⠀　　　⠀.　
-　　˚　　　⠀　⠀  　　,　　　　　　.
-　　　　　　　　　　　　　.
-　　　　　　*⠀　　⠀  ✮　　　　　⠀✦⠀　
-　　　　　　　　　　　　　　　　　　.
-　　　　.　　　　.　　　⠀
-　　　　✩　　　　　　　.
-　　　　　　　
-　　　˚　　　　　　　　ﾟ　　　　　.
-　.⠀　　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀,
-　　　*　　⠀.★
-　　　　　.　　　　　　　　　　⠀✦
-　˚　　　　　　　　　　　　　　*　　　　　
+<img width="230" height="29" alt="image" src="https://github.com/user-attachments/assets/23f9eb87-1967-458c-85f6-40dae1710ffd" />
+<img width="230" height="29" alt="image" src="https://github.com/user-attachments/assets/a112d744-c3e4-4b6a-9a82-89d3a291f032" />
+<img width="230" height="29" alt="image" src="https://github.com/user-attachments/assets/4f8417c4-0eb3-4d31-84c3-c7bf762ce732" />
+<img width="230" height="29" alt="image" src="https://github.com/user-attachments/assets/f1a8cd24-217c-4cb2-819e-454d1b291700" />
 
 
  jokes below btw hi .
