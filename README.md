@@ -23,8 +23,8 @@
  <br><p align="center"> "Let me help, My baking isn'y anywhere as good as Cosmo or Sprout but.." 
 <br><p align="center"> "𝘐𝘵'𝘴 𝘵𝘩𝘦 𝘵𝘩𝘰𝘶𝘨𝘩𝘵 𝘵𝘩𝘢𝘵 𝘤𝘰𝘶𝘯𝘵𝘴. 𝘛𝘩𝘢𝘯𝘬 𝘺𝘰𝘶, 𝘎𝘪𝘯𝘨𝘦𝘳.
 
-br><p align="center"> Astro yume . Ginger irl 
-br><p align="center"> Hi Cosmo!!
+<br><p align="center"> Astro yume . Ginger irl 
+<br><p align="center"> Hi Cosmo!!
 
 ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 　　　　　　*　　　　　　　　　　　.
