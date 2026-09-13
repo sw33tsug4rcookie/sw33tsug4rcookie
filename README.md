@@ -4,13 +4,13 @@
 <br><p align="center">${\textsf{\color{#8A0E0E}𝐼𝓃𝒹𝒾𝑒 𝑜𝓇 𝒢𝒾𝓃𝑔𝑒𝓇}}$
 <br><p align="center"><br>${\textsf{\color{#780606}𝐸𝒾𝑔𝒽𝓉𝑒𝑒𝓃, }}$ ${\textsf{\color{#630303}  𝓞𝓶𝓷𝓲𝓼𝓮𝔁𝓾𝓪𝓵 + 𝓑𝓲𝓰𝓮𝓷𝓭𝓮𝓻}}$
 <br><p align="center"><br>${\textsf{\color{#450303}𝒢𝒾𝓃𝑔𝑒𝓇 𝒻𝒾𝒸𝓉𝓀𝒾𝓃}}$ ${\textsf{\color{#330404}/𝐼𝓇𝓁}}$
-<br><p align="center"><img width="500" height="281" alt="download" src="https://github.com/user-attachments/assets/03c9e30f-136c-4827-8abc-0b7cfbcc14e1" />
+<br><p align="center"><img width="500" src="https://github.com/user-attachments/assets/03c9e30f-136c-4827-8abc-0b7cfbcc14e1" />
 <br><p align="center">${\textsf{\color{#852424} "It's the thrill of the hunt that makes it all worthwhile ."}}$
 <br><p align="center">${\textsf{\color{#AAD4F9}Astro yume . }}$ <img width="20"  src="https://github.com/user-attachments/assets/bdb5bc9b-9765-4153-9781-4ecd9fc50305" />
  ${\textsf{\color{#58AEF9}Dbls iwc ,<3}}$ <img width="99"  src="https://github.com/user-attachments/assets/35debc21-e34f-47c4-9782-6b85c1270781" />
 <br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/55aa56e5-3a04-4942-a918-e6c38f979544" />
 
-<br> ${\textsf{\color{#450303}⠀⠀　⠀✿⠀　Check straw for more / -15 dni　　　　₊　　˙　}}$ 
+<br> ${\textsf{\color{#450303}⠀⠀　⠀✿⠀　Check straw for more / under 15 dni　　　　₊　　˙　}}$ 
 
 <br><p align="left"><img width="99"  src="https://github.com/user-attachments/assets/3208426c-c3bb-445d-96b2-8ff275a0ef95" />
 <br> ${\textsf{\color{#852424}' ​🇮​​🇸​ ​🇹​​🇭​​🇮​​🇸​ ​🇹​​🇭​​🇪​ ​🇫​​🇪​​🇪​​🇱​​🇮​​🇳​​🇬​ ​🇴​​🇫​ ​🇱​​🇴​​🇻​​🇪​ ​🇹​​🇭​​🇦​​🇹​ ​🇮​ ​🇭​​🇦​​🇻​​🇪​ ​🇴​​🇳​​🇱​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇩​ ​🇦​​🇧​​🇴​​🇺​​🇹​? '　໒୧}}$　<img width="20"  src="https://github.com/user-attachments/assets/6aa9f57c-cfcc-40f4-87f1-1f1dfbc914da" />
@@ -33,8 +33,7 @@
 
 <br><p align="center"> ${\textsf{\color{#330404}.˚⊹. ࣪𓉸 ࣪⊹˚. check straw + ata .˚⊹. ࣪𓉸 ࣪⊹˚.}}$
 <br><p align="center"> ${\textsf{\color{#852424}If someone I interact with is problematic, let me know !!}}$ 
-<br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/49ad1060-e2d3-4dd3-bf8a-2d990de339d5" />
-
+<br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/55aa56e5-3a04-4942-a918-e6c38f979544" />
 
 
 <br> ${\textsf{\color{#AAD4F9} Stamps ok?}}$ 
@@ -49,7 +48,7 @@
 <img width="150"  src="https://github.com/user-attachments/assets/35346244-9abf-4077-a2fc-b225373b3a2b" /><img width="99"  src="https://github.com/user-attachments/assets/e47e5de4-1dd1-431f-8bc0-d35a3d0fac4a" /><img width="99"  src="https://github.com/user-attachments/assets/0a867b6c-d34f-4925-8bed-b32b88d35f05" /><img width="99"  src="https://github.com/user-attachments/assets/5ad36708-535e-40a2-ab73-f1c9202a94c6" /><img width="99"  src="https://github.com/user-attachments/assets/57977f50-0628-44ac-971a-07bad028a964" /><img width="150"  src="https://github.com/user-attachments/assets/55119d9f-610f-4662-af5b-a6dafe48260f" /><img width="150"  src="https://github.com/user-attachments/assets/f3ed82c6-81f6-46c5-97fe-063f616948c8" />
 
 
-<br><p align="center"><img width="2048"  src="https://github.com/user-attachments/assets/dc753c4a-4388-4537-9902-d048b8618c5a" />
+<br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/55aa56e5-3a04-4942-a918-e6c38f979544" />
 
 
 All of my pt awards / nominations ! ty to you all for nominating and adding me!!
@@ -67,7 +66,7 @@ All of my pt awards / nominations ! ty to you all for nominating and adding me!!
 
 
 
-<br><p align="center"> <img width="2048"  src="https://github.com/user-attachments/assets/1bf9af6f-7736-4d5d-9abd-a4d6b2748e7c" />
+<br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/55aa56e5-3a04-4942-a918-e6c38f979544" />
 -# dividers not mine , credits 2 anitalenia on tumblr..
 
 
