@@ -1,9 +1,3 @@
-
-<br><p align="center"><br>${\textsf{\color{#ff0000}RMKING SOON !!!!! YAY !!!!!!!!!}}$
-
-<br><p align="center"><br>${\textsf{\color{#ff0000}PSA; Do NOT harass anyone on my behalf?? If you see someone copying my skins , or mocking me in general, either whisper me about it}}$
-<br><p align="center"><br>${\textsf{\color{#ff0000}or send me a message on my ata, donot harass people on my behalf, that makes the situation worse. Ty !!}}$
-# 
 <br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Bats&left_color=%23800000&right_color=%23000000)
 <br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Edu+VIC+WA+NT+Hand&weight=500&pause=1000&color=5F0000&background=FF89DD00&center=true&vCenter=true&width=435&lines=Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
 <br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/e89fd59d-30e7-44dc-a2fc-c3d0912bcf49" />
@@ -27,6 +21,11 @@
 
 <br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/84f0873e-9ec7-45d1-b219-6aba505f1e3e" />
 
+
+<br><p align="center"><br>${\textsf{\color{#ff0000}RMKING SOON !!!!! YAY !!!!!!!!!}}$
+
+<br><p align="center"><br>${\textsf{\color{#ff0000}PSA; Do NOT harass anyone on my behalf?? If you see someone copying my skins , or mocking me in general, either whisper me about it}}$
+<br><p align="center"><br>${\textsf{\color{#ff0000}or send me a message on my ata, donot harass people on my behalf, that makes the situation worse. Ty !!}}$
 
 <br><p align="center">${\textsf{\color{#D396ED}Yes, I do have 160+ Ginger skins !! No this doesnt mean take inspo or copy them!!}}$ 
 <br><p align="center"> ${\textsf{\color{#96E3ED} Do not copy or inspo off of my ponies, socials or github!??? idk why i have to CLARIFY THIS. }}$ 
