@@ -4,34 +4,31 @@
 <br><p align="center"><br>${\textsf{\color{#ff0000}PSA; Do NOT harass anyone on my behalf?? If you see someone copying my skins , or mocking me in general, either whisper me about it}}$
 <br><p align="center"><br>${\textsf{\color{#ff0000}or send me a message on my ata, donot harass people on my behalf, that makes the situation worse. Ty !!}}$
 # 
-<br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Sprinkles&left_color=%23f9b9e5&right_color=%23b3ea9e)
-<br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Edu+VIC+WA+NT+Hand&weight=500&pause=1000&color=CEFFD7&background=FF89DD00&center=true&vCenter=true&width=435&lines=Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
-<br><p align="center"><img width="2048"  src="https://github.com/user-attachments/assets/d6fe6a2c-0398-4917-b809-3426cfce06e9" />
-
-<br><p align="center">${\textsf{\color{#ffdbe5}𝐼𝓃𝒹𝒾𝑒 𝑜𝓇 𝒢𝒾𝓃𝑔𝑒𝓇}}$
-<br><p align="center"><br>${\textsf{\color{#fbc8d6}𝐸𝒾𝑔𝒽𝓉𝑒𝑒𝓃, }}$ 
-${\textsf{\color{#f5abbf}  𝓞𝓶𝓷𝓲𝓼𝓮𝔁𝓾𝓪𝓵 + 𝓑𝓲𝓰𝓮𝓷𝓭𝓮𝓻}}$
-<br><p align="center"><br>${\textsf{\color{#9CE8AB}𝒢𝒾𝓃𝑔𝑒𝓇 𝒻𝒾𝒸𝓉𝓀𝒾𝓃}}$ ${\textsf{\color{#9CE8AB}/𝐼𝓇𝓁}}$
-<br><p align="center"><img width="735"  src="https://github.com/user-attachments/assets/7f9f1b6d-9ed9-4d64-998e-adacd29286db" />
-<br><p align="center">${\textsf{\color{#f778e6} Me + her , , <3 (art not mine)}}$
+<br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Bats&left_color=%23800000&right_color=%23000000)
+<br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Edu+VIC+WA+NT+Hand&weight=500&pause=1000&color=5F0000&background=FF89DD00&center=true&vCenter=true&width=435&lines=Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
+<br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/e89fd59d-30e7-44dc-a2fc-c3d0912bcf49" />
+<br><p align="center">${\textsf{\color{#8A0E0E}𝐼𝓃𝒹𝒾𝑒 𝑜𝓇 𝒢𝒾𝓃𝑔𝑒𝓇}}$
+<br><p align="center"><br>${\textsf{\color{#780606}𝐸𝒾𝑔𝒽𝓉𝑒𝑒𝓃, }}$ ${\textsf{\color{#630303}  𝓞𝓶𝓷𝓲𝓼𝓮𝔁𝓾𝓪𝓵 + 𝓑𝓲𝓰𝓮𝓷𝓭𝓮𝓻}}$
+<br><p align="center"><br>${\textsf{\color{#450303}𝒢𝒾𝓃𝑔𝑒𝓇 𝒻𝒾𝒸𝓉𝓀𝒾𝓃}}$ ${\textsf{\color{#330404}/𝐼𝓇𝓁}}$
+<br><p align="center"><img width="500" height="281" alt="download" src="https://github.com/user-attachments/assets/03c9e30f-136c-4827-8abc-0b7cfbcc14e1" />
+<br><p align="center">${\textsf{\color{#852424} "It's the thrill of the hunt that makes it all worthwhile ."}}$
 <br><p align="center">${\textsf{\color{#AAD4F9}Astro yume . }}$ <img width="20"  src="https://github.com/user-attachments/assets/bdb5bc9b-9765-4153-9781-4ecd9fc50305" />
  ${\textsf{\color{#58AEF9}Dbls iwc ,<3}}$ <img width="99"  src="https://github.com/user-attachments/assets/35debc21-e34f-47c4-9782-6b85c1270781" />
-<br><p align="center"><img width="2048"  src="https://github.com/user-attachments/assets/d0c07cda-5ce4-43dc-a7f7-57d6a74be2cd" />
+<br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/55aa56e5-3a04-4942-a918-e6c38f979544" />
 
-
-<br> ${\textsf{\color{#ED96D0}⠀⠀　⠀✿⠀　Check straw for more / -15 dni　　　　₊　　˙　}}$ 
+<br> ${\textsf{\color{#450303}⠀⠀　⠀✿⠀　Check straw for more / -15 dni　　　　₊　　˙　}}$ 
 
 <br><p align="left"><img width="99"  src="https://github.com/user-attachments/assets/3208426c-c3bb-445d-96b2-8ff275a0ef95" />
-<br> ${\textsf{\color{#96EDB8}' ​🇮​​🇸​ ​🇹​​🇭​​🇮​​🇸​ ​🇹​​🇭​​🇪​ ​🇫​​🇪​​🇪​​🇱​​🇮​​🇳​​🇬​ ​🇴​​🇫​ ​🇱​​🇴​​🇻​​🇪​ ​🇹​​🇭​​🇦​​🇹​ ​🇮​ ​🇭​​🇦​​🇻​​🇪​ ​🇴​​🇳​​🇱​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇩​ ​🇦​​🇧​​🇴​​🇺​​🇹​? '　໒୧}}$　<img width="20"  src="https://github.com/user-attachments/assets/6aa9f57c-cfcc-40f4-87f1-1f1dfbc914da" />
+<br> ${\textsf{\color{#852424}' ​🇮​​🇸​ ​🇹​​🇭​​🇮​​🇸​ ​🇹​​🇭​​🇪​ ​🇫​​🇪​​🇪​​🇱​​🇮​​🇳​​🇬​ ​🇴​​🇫​ ​🇱​​🇴​​🇻​​🇪​ ​🇹​​🇭​​🇦​​🇹​ ​🇮​ ​🇭​​🇦​​🇻​​🇪​ ​🇴​​🇳​​🇱​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇩​ ​🇦​​🇧​​🇴​​🇺​​🇹​? '　໒୧}}$　<img width="20"  src="https://github.com/user-attachments/assets/6aa9f57c-cfcc-40f4-87f1-1f1dfbc914da" />
 
 
 <br><p align="right"><img width="99"  src="https://github.com/user-attachments/assets/b26b6f83-2b9a-44bc-8375-09ddf3a0cde2" />
-<br> ${\textsf{\color{#ED96D2}　　　𝄢　🇧​​🇪​​🇨​​🇦​​🇺​​🇸​​🇪​ ​🇲​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇹​ ​🇧​​🇪​​🇦​​​​🇹​​🇸​ ​🇫​​🇴​​🇷​ ​🇾​​🇴​​🇺​ ​🇫​​🇷​​🇴​​🇲​ ​🇹​​🇭​​🇪​ ​🇧​​🇪​​🇬​​🇮​​🇳​​🇳​​🇮​​🇳​​🇬​. ' ‿ }}$ <img width="20"  src="https://github.com/user-attachments/assets/5552f773-707f-4c2b-ad62-c3cda6cd8c08" />
+<br> ${\textsf{\color{#780606}　　　𝄢　🇧​​🇪​​🇨​​🇦​​🇺​​🇸​​🇪​ ​🇲​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇹​ ​🇧​​🇪​​🇦​​​​🇹​​🇸​ ​🇫​​🇴​​🇷​ ​🇾​​🇴​​🇺​ ​🇫​​🇷​​🇴​​🇲​ ​🇹​​🇭​​🇪​ ​🇧​​🇪​​🇬​​🇮​​🇳​​🇳​​🇮​​🇳​​🇬​. ' ‿ }}$ <img width="20"  src="https://github.com/user-attachments/assets/5552f773-707f-4c2b-ad62-c3cda6cd8c08" />
 
-<br><p align="center"> <img width="2048"  src="https://github.com/user-attachments/assets/30e4b867-1e2c-4ec1-abbb-e7105d6d0208" />
+<br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/84f0873e-9ec7-45d1-b219-6aba505f1e3e" />
 
 
-<br><p align="center">${\textsf{\color{#D396ED}Yes, I do have 140+ Ginger skins !! No this doesnt mean take inspo or copy them!!}}$ 
+<br><p align="center">${\textsf{\color{#D396ED}Yes, I do have 160+ Ginger skins !! No this doesnt mean take inspo or copy them!!}}$ 
 <br><p align="center"> ${\textsf{\color{#96E3ED} Do not copy or inspo off of my ponies, socials or github!??? idk why i have to CLARIFY THIS. }}$ 
 <br><p align="center"> ${\textsf{\color{#A8F5D0}Yes I am THE Ginger of Ponytown, please int with me I dont bite }}$ 
 
