@@ -24,20 +24,20 @@
 <br><p align="center"><br>${\textsf{\color{#ff0000}PSA; Do NOT harass anyone on my behalf?? If you see someone copying my skins , or mocking me in general, either whisper me about it}}$
 <br><p align="center"><br>${\textsf{\color{#ff0000}or send me a message on my ata, donot harass people on my behalf, that makes the situation worse. Ty !!}}$
 
-<br><p align="center">${\textsf{\color{#D396ED}Yes, I do have 160+ Ginger skins !! No this doesnt mean take inspo or copy them!!}}$ 
-<br><p align="center"> ${\textsf{\color{#96E3ED} Do not copy or inspo off of my ponies, socials or github!??? idk why i have to CLARIFY THIS. }}$ 
-<br><p align="center"> ${\textsf{\color{#A8F5D0}Yes I am THE Ginger of Ponytown, please int with me I dont bite }}$ 
+<br><p align="center">${\textsf{\color{#8A0E0E}Yes, I do have 160+ Ginger skins !! No this doesnt mean take inspo or copy them!!}}$ 
+<br><p align="center"> ${\textsf{\color{#780606} Do not copy or inspo off of my ponies, socials or github!??? idk why i have to CLARIFY THIS. }}$ 
+<br><p align="center"> ${\textsf{\color{#630303}Yes I am THE Ginger of Ponytown, please int with me I dont bite }}$ 
 
-<br><p align="center">${\textsf{\color{#F362B4}I am NOT my friends. Do not group me into drama with them. I block FREELY. Do not come and harass me if i have blocked you!!}}$ ${\textsf{\color{#76AAEF}And to the person stalking my ATA and insulting me, say it to my FACE.<3}}$
+<br><p align="center">${\textsf{\color{#450303}I am NOT my friends. Do not group me into drama with them. I block FREELY. Do not come and harass me if i have blocked you!!}}$ ${\textsf{\color{#330404}And to the person stalking my ATA and insulting me, say it to my face.}}$
 
 
-<br><p align="center"> ${\textsf{\color{#8FEA92}.˚⊹. ࣪𓉸 ࣪⊹˚. check straw + ata .˚⊹. ࣪𓉸 ࣪⊹˚.}}$
-<br><p align="center"> ${\textsf{\color{#EA8FD1}If someone I interact with is problematic, let me know !!}}$ 
+<br><p align="center"> ${\textsf{\color{#330404}.˚⊹. ࣪𓉸 ࣪⊹˚. check straw + ata .˚⊹. ࣪𓉸 ࣪⊹˚.}}$
+<br><p align="center"> ${\textsf{\color{#852424}If someone I interact with is problematic, let me know !!}}$ 
 <br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/49ad1060-e2d3-4dd3-bf8a-2d990de339d5" />
 
 
 
-<br> ${\textsf{\color{#9d88f2} Stamps ok?}}$ 
+<br> ${\textsf{\color{#AAD4F9} Stamps ok?}}$ 
 
 <img width="86"  src="https://github.com/user-attachments/assets/7e660c9b-f0b9-48b0-b16d-65757ae6a77d" />
 <img width="99"  src="https://github.com/user-attachments/assets/c05c74fb-0bf9-4da9-b001-3fae49754782" />
