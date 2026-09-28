@@ -36,10 +36,10 @@ $<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Spawn , Caves
 <br><p align="center"> <img width="1657" src="https://github.com/user-attachments/assets/9ac94172-db2b-4bde-b72c-2c121dac7db5" />
 <br><p align="center"> ${\textsf{\color{#F7E283}.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅}}$
 <br><p align="center">${\textsf{\color{#F7E283}╭────── · · ୨୧ · · ──────────────────────────────────────────────────────────╮}}$
-<br><p align="center"> ${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑ATA + MOOTS <3 ⋆⭒˚.⋆}}$
-<br><p align="center"> ${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑}}$([ATA](https://sweetsugar.atabook.org/))
-<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑C+H only okay if my skin name says so ! Or whisper and ask me ! Im usually offtab !!}}
-$<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Spawn , Caves +Club map are where you will find me ! Or w/ Partner + Party !!}}$
+<br><p align="center"> ${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑ATA + MOOTS <3 (IF U WANNA BE ADDED , ASK ME !!⋆⭒˚.⋆}}$
+<br><p align="center"> ${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑}}$[ATA](https://sweetsugar.atabook.org/)
+<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑}}$ [My moon<3](https://sweetsugar.atabook.org/) [Kai !](https://sweetsugar.atabook.org/) [ROTZ / VEE !](https://github.com/neverwanted2dance) [Aether !](https://github.com/MrNovalite) [BEN!](https://github.com/benbatz) [STINKY !](https://github.com/stinkyrustyfork) [NOE !!](https://github.com/SweetTenshi)
+<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Spawn , Caves +Club map are where you will find me ! Or w/ Partner + Party !!}}$
 <br><p align="center">${\textsf{\color{#F7E283}╰────── · · ୨୧ · · ─────────────────────────────────────────────────────────╯}}$
 <br><p align="center"> ${\textsf{\color{#F7E283}.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅}}$
 
