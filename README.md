@@ -1,42 +1,7 @@
-<br><p align="center">${\textsf{\color{#ff0000}Theme change soon.. .  !}}$
+<br><p align="center">${\textsf{\color{#ff0000} WIP <3}}$
 
 <br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Bats&left_color=%23800000&right_color=%23000000)
 <br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Edu+VIC+WA+NT+Hand&weight=500&pause=1000&color=5F0000&background=FF89DD00&center=true&vCenter=true&width=435&lines=Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
-<br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/e89fd59d-30e7-44dc-a2fc-c3d0912bcf49" />
-<br><p align="center">${\textsf{\color{#8A0E0E}𝐼𝓃𝒹𝒾𝑒 𝑜𝓇 𝒢𝒾𝓃𝑔𝑒𝓇}}$
-<br><p align="center"><br>${\textsf{\color{#780606}𝐸𝒾𝑔𝒽𝓉𝑒𝑒𝓃, }}$ ${\textsf{\color{#630303}  𝓞𝓶𝓷𝓲𝓼𝓮𝔁𝓾𝓪𝓵 + 𝓑𝓲𝓰𝓮𝓷𝓭𝓮𝓻}}$
-<br><p align="center"><br>${\textsf{\color{#450303}𝒢𝒾𝓃𝑔𝑒𝓇 𝒻𝒾𝒸𝓉𝓀𝒾𝓃}}$ ${\textsf{\color{#330404}/𝐼𝓇𝓁}}$
-<br><p align="center"><img width="500" src="https://github.com/user-attachments/assets/03c9e30f-136c-4827-8abc-0b7cfbcc14e1" />
-<br><p align="center">${\textsf{\color{#852424} "It's the thrill of the hunt that makes it all worthwhile ."}}$
-<br><p align="center">${\textsf{\color{#AAD4F9}Astro yume . }}$ <img width="20"  src="https://github.com/user-attachments/assets/bdb5bc9b-9765-4153-9781-4ecd9fc50305" />
- ${\textsf{\color{#58AEF9}Dbls iwc ,<3}}$ <img width="99"  src="https://github.com/user-attachments/assets/35debc21-e34f-47c4-9782-6b85c1270781" />
-<br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/55aa56e5-3a04-4942-a918-e6c38f979544" />
-
-<br> ${\textsf{\color{#450303}⠀⠀　⠀✿⠀　Check straw for more / under 15 dni　　　　₊　　˙　}}$ 
-
-<br><p align="left"><img width="99"  src="https://github.com/user-attachments/assets/3208426c-c3bb-445d-96b2-8ff275a0ef95" />
-<br> ${\textsf{\color{#852424}' ​🇮​​🇸​ ​🇹​​🇭​​🇮​​🇸​ ​🇹​​🇭​​🇪​ ​🇫​​🇪​​🇪​​🇱​​🇮​​🇳​​🇬​ ​🇴​​🇫​ ​🇱​​🇴​​🇻​​🇪​ ​🇹​​🇭​​🇦​​🇹​ ​🇮​ ​🇭​​🇦​​🇻​​🇪​ ​🇴​​🇳​​🇱​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇩​ ​🇦​​🇧​​🇴​​🇺​​🇹​? '　໒୧}}$　<img width="20"  src="https://github.com/user-attachments/assets/6aa9f57c-cfcc-40f4-87f1-1f1dfbc914da" />
-
-
-<br><p align="right"><img width="99"  src="https://github.com/user-attachments/assets/b26b6f83-2b9a-44bc-8375-09ddf3a0cde2" />
-<br> ${\textsf{\color{#780606}　　　𝄢　🇧​​🇪​​🇨​​🇦​​🇺​​🇸​​🇪​ ​🇲​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇹​ ​🇧​​🇪​​🇦​​​​🇹​​🇸​ ​🇫​​🇴​​🇷​ ​🇾​​🇴​​🇺​ ​🇫​​🇷​​🇴​​🇲​ ​🇹​​🇭​​🇪​ ​🇧​​🇪​​🇬​​🇮​​🇳​​🇳​​🇮​​🇳​​🇬​. ' ‿ }}$ <img width="20"  src="https://github.com/user-attachments/assets/5552f773-707f-4c2b-ad62-c3cda6cd8c08" />
-
-<br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/84f0873e-9ec7-45d1-b219-6aba505f1e3e" />
-
-<br><p align="center"><br>${\textsf{\color{#ff0000}PSA; Do NOT harass anyone on my behalf?? If you see someone copying my skins , or mocking me in general, either whisper me about it}}$
-<br><p align="center"><br>${\textsf{\color{#ff0000}or send me a message on my ata, donot harass people on my behalf, that makes the situation worse. Ty !!}}$
-
-<br><p align="center">${\textsf{\color{#8A0E0E}Yes, I do have 160+ Ginger skins !! No this doesnt mean take inspo or copy them!!}}$ 
-<br><p align="center"> ${\textsf{\color{#780606} Do not copy or inspo off of my ponies, socials or github!??? idk why i have to CLARIFY THIS. }}$ 
-<br><p align="center"> ${\textsf{\color{#630303}Yes I am THE Ginger of Ponytown, please int with me I dont bite }}$ 
-
-<br><p align="center">${\textsf{\color{#450303}I am NOT my friends. Do not group me into drama with them. I block FREELY. Do not come and harass me if i have blocked you!!}}$ ${\textsf{\color{#330404}And to the person stalking my ATA and insulting me, say it to my face.}}$
-
-
-<br><p align="center"> ${\textsf{\color{#330404}.˚⊹. ࣪𓉸 ࣪⊹˚. check straw + ata .˚⊹. ࣪𓉸 ࣪⊹˚.}}$
-<br><p align="center"> ${\textsf{\color{#852424}If someone I interact with is problematic, let me know !!}}$ 
-<br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/55aa56e5-3a04-4942-a918-e6c38f979544" />
-
 
 <br> ${\textsf{\color{#AAD4F9} Stamps ok?}}$ 
 
