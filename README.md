@@ -1,7 +1,71 @@
 <br><p align="center">${\textsf{\color{#ff0000} WIP <3}}$
 
-<br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Bats&left_color=%23800000&right_color=%23000000)
-<br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Edu+VIC+WA+NT+Hand&weight=500&pause=1000&color=5F0000&background=FF89DD00&center=true&vCenter=true&width=435&lines=Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
+<br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Cookies&left_color=%23f5df51&right_color=%23f4c38a)
+<br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Edu+VIC+WA+NT+Hand&weight=500&pause=1000&color=F7D927&background=FF89DD00&center=true&vCenter=true&width=435&lines=Astro+%2C+my+Moon+%2C+I+love+you.;Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
+
+<br><p align="center"><img width="1664" src="https://github.com/user-attachments/assets/76bb960a-519e-43c0-81d2-533b95cf375d" />
+<br><p align="center"> ${\textsf{\color{#F7E283}.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅}}$
+<br><p align="center">${\textsf{\color{#F7E283}╭─────────────────────────────── · · ୨୧ · ·───────────────────────────────╮}}$
+<br><p align="center">${\textsf{\color{#FACE87}⋆⭒˚.⋆Basic Info⋆⭒˚.⋆}}$
+<br><p align="center">${\textsf{\color{#FAD598}⋆.𐙚 ̊Indie or Ginger}}$ ${\textsf{\color{#F7C472} , 18 . Under 15 hvy dni}}$ ${\textsf{\color{#FAD598} Ginger fictkin , Semi sharing Astro Yume .⋆.𐙚 ̊}}$ 
+<br><p align="center">${\textsf{\color{#FAE898}⊹*.★ Bigender + Omnisexual ;  She / him pref , they is ok!⊹*.★}}$
+<br><p align="center">${\textsf{\color{#F7E283}╰───────────────────────────────· · ୨୧ · ·────────────────────────────────╯}}$
+<br><p align="center"> ${\textsf{\color{#F7E283}.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅}}$
+
+<br><p align="center"><img width="1847" src="https://github.com/user-attachments/assets/4470098a-a820-4520-b27b-e3927d7cf129" />
+<br><p align="center"> ${\textsf{\color{#F7E283}⋆⭒˚.⋆BFYI⋆⭒˚.⋆}}$
+<br><p align="center"> ${\textsf{\color{#F7E283}.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅}}$
+<br><p align="center">${\textsf{\color{#F7E283}╭────── · · ୨୧ · · ──────────────────────────────────────────────────────────╮}}$
+<br><p align="center"> ${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Int with caution at all times , I get paranoid EXTREMELY easily. ⋆⭒˚.⋆}}$
+<br><p align="center"> ${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Bipolar I , Depression , ADHD . Unmedicated }}$
+<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Mood swings QUICKLY , don't take it to heart please . . }}
+$<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Don't force your way into my circle . I will not be nice about it.}}$
+<br><p align="center">${\textsf{\color{#F7E283}╰────── · · ୨୧ · · ─────────────────────────────────────────────────────────╯}}$
+<br><p align="center"> ${\textsf{\color{#F7E283}.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅}}$
+<br><p align="center"> <img width="1902" src="https://github.com/user-attachments/assets/8b30435a-97a0-4160-9bdb-9f2861226fdf" />
+
+<br><p align="center"> ${\textsf{\color{#F7E283}⋆ · ★ Other things ★ · ⋆}}$
+<br><p align="center"> ${\textsf{\color{#F7E283}.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅}}$
+<br><p align="center">${\textsf{\color{#F7E283}╭────── · · ୨୧ · · ──────────────────────────────────────────────────────────╮}}$
+<br><p align="center"> ${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Pts official Ginger the cookie ! ⋆⭒˚.⋆}}$
+<br><p align="center"> ${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Do not Copy or take inspo from my skins without asking please ! }}$
+<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑C+H only okay if my skin name says so ! Or whisper and ask me ! Im usually offtab !!}}
+$<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Spawn , Caves +Club map are where you will find me ! Or w/ Partner + Party !!}}$
+<br><p align="center">${\textsf{\color{#F7E283}╰────── · · ୨୧ · · ─────────────────────────────────────────────────────────╯}}$
+<br><p align="center"> ${\textsf{\color{#F7E283}.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅}}$
+<br><p align="center"> <img width="1657" src="https://github.com/user-attachments/assets/9ac94172-db2b-4bde-b72c-2c121dac7db5" />
+<br><p align="center"> ${\textsf{\color{#F7E283}.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅}}$
+<br><p align="center">${\textsf{\color{#F7E283}╭────── · · ୨୧ · · ──────────────────────────────────────────────────────────╮}}$
+<br><p align="center"> ${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑ATA + MOOTS <3 ⋆⭒˚.⋆}}$
+<br><p align="center"> ${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑([ATA](https://sweetsugar.atabook.org/))}}$
+<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑C+H only okay if my skin name says so ! Or whisper and ask me ! Im usually offtab !!}}
+$<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Spawn , Caves +Club map are where you will find me ! Or w/ Partner + Party !!}}$
+<br><p align="center">${\textsf{\color{#F7E283}╰────── · · ୨୧ · · ─────────────────────────────────────────────────────────╯}}$
+<br><p align="center"> ${\textsf{\color{#F7E283}.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅}}$
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 <br> ${\textsf{\color{#AAD4F9} Stamps ok?}}$ 
 
