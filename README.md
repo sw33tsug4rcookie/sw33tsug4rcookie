@@ -1,5 +1,3 @@
-<br><p align="center">${\textsf{\color{#ff0000} WIP <3}}$
-
 <br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Cookies&left_color=%23f5df51&right_color=%23f4c38a)
 <br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Edu+VIC+WA+NT+Hand&weight=500&pause=1000&color=F7D927&background=FF89DD00&center=true&vCenter=true&width=435&lines=Astro+%2C+my+Moon+%2C+I+love+you.;Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
 
@@ -38,36 +36,13 @@ $<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Spawn , Caves
 <br><p align="center">${\textsf{\color{#F7E283}╭────── · · ୨୧ · · ──────────────────────────────────────────────────────────╮}}$
 <br><p align="center"> ${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑ATA + MOOTS <3 (IF U WANNA BE ADDED , ASK ME !!⋆⭒˚.⋆}}$
 <br><p align="center"> ${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑}}$[ATA](https://sweetsugar.atabook.org/)
-<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑}}$ [My moon<3](https://sweetsugar.atabook.org/) [Kai !](https://sweetsugar.atabook.org/) [ROTZ / VEE !](https://github.com/neverwanted2dance) [Aether !](https://github.com/MrNovalite) [BEN!](https://github.com/benbatz) [STINKY !](https://github.com/stinkyrustyfork) [NOE !!](https://github.com/SweetTenshi)
-<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Spawn , Caves +Club map are where you will find me ! Or w/ Partner + Party !!}}$
+<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑}}$ [My moon<3](https://sweetsugar.atabook.org/) [Kai !](https://sweetsugar.atabook.org/) [ROTZ / VEE !](https://github.com/neverwanted2dance) [Aether !](https://github.com/MrNovalite) [BEN!](https://github.com/benbatz) [STINKY !](https://github.com/stinkyrustyfork) [NOE !!](https://github.com/SweetTenshi) [Devan!!](https://github.com/devanreedirl) [Donna!](https://github.com/PorcelainDolls) 
+<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑ NO.1 MOONCOOKIE ENTHUSIAST ITS ME AND MY BF FR FR OK? OK!!}}$
 <br><p align="center">${\textsf{\color{#F7E283}╰────── · · ୨୧ · · ─────────────────────────────────────────────────────────╯}}$
 <br><p align="center"> ${\textsf{\color{#F7E283}.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅}}$
+<br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/2eb4314f-fd6d-45d0-af2d-c18ad5a356e9" />
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-<br> ${\textsf{\color{#AAD4F9} Stamps ok?}}$ 
+<br><p align="center">${\textsf{\color{#AAD4F9} Stamps ok?}}$ 
 
 <img width="86"  src="https://github.com/user-attachments/assets/7e660c9b-f0b9-48b0-b16d-65757ae6a77d" />
 <img width="99"  src="https://github.com/user-attachments/assets/c05c74fb-0bf9-4da9-b001-3fae49754782" />
@@ -79,8 +54,7 @@ $<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Spawn , Caves
 <img width="150"  src="https://github.com/user-attachments/assets/35346244-9abf-4077-a2fc-b225373b3a2b" /><img width="99"  src="https://github.com/user-attachments/assets/e47e5de4-1dd1-431f-8bc0-d35a3d0fac4a" /><img width="99"  src="https://github.com/user-attachments/assets/0a867b6c-d34f-4925-8bed-b32b88d35f05" /><img width="99"  src="https://github.com/user-attachments/assets/5ad36708-535e-40a2-ab73-f1c9202a94c6" /><img width="99"  src="https://github.com/user-attachments/assets/57977f50-0628-44ac-971a-07bad028a964" /><img width="150"  src="https://github.com/user-attachments/assets/55119d9f-610f-4662-af5b-a6dafe48260f" /><img width="150"  src="https://github.com/user-attachments/assets/f3ed82c6-81f6-46c5-97fe-063f616948c8" />
 
 
-<br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/55aa56e5-3a04-4942-a918-e6c38f979544" />
-
+<br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/2eb4314f-fd6d-45d0-af2d-c18ad5a356e9" />
 
 All of my pt awards / nominations ! ty to you all for nominating and adding me!!
 
@@ -97,8 +71,9 @@ All of my pt awards / nominations ! ty to you all for nominating and adding me!!
 
 
 
-<br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/55aa56e5-3a04-4942-a918-e6c38f979544" />
--# dividers not mine , credits 2 anitalenia on tumblr..
+<br><p align="center"> <img width="1902" src="https://github.com/user-attachments/assets/1fdbdeba-0bc6-4df6-aae6-1a3760a99de0" />
+
+[-# dividers not mine , credits 2 bronzewasp on tumblr..](https://www.tumblr.com/bronzewasp)
 
 
 
