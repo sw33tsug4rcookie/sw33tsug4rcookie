@@ -6,7 +6,7 @@
 <br><p align="center">${\textsf{\color{#F7E283}╭─────────────────────────────── · · ୨୧ · ·───────────────────────────────╮}}$
 <br><p align="center">${\textsf{\color{#FACE87}⋆⭒˚.⋆Basic Info⋆⭒˚.⋆}}$
 <br><p align="center">${\textsf{\color{#FAD598}⋆.𐙚 ̊Indie or Ginger}}$ ${\textsf{\color{#F7C472} , 18 . Under 15 hvy dni}}$ ${\textsf{\color{#FAD598} Ginger fictkin , Semi sharing Astro Yume .⋆.𐙚 ̊}}$ 
-<br><p align="center">${\textsf{\color{#FAE898}⊹*.★ Bigender + Omnisexual ;  She / him pref , they is ok!⊹*.★}}$
+<br><p align="center">${\textsf{\color{#FAE898}⊹*.★ Bigender + Omnisexual ;  She / him pref , they is ok if close!⊹*.★}}$
 <br><p align="center">${\textsf{\color{#F7E283}╰───────────────────────────────· · ୨୧ · ·────────────────────────────────╯}}$
 <br><p align="center"> ${\textsf{\color{#F7E283}.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅}}$
 
