@@ -3,6 +3,7 @@
 <br><p align="center"> whatever goes on there. I have not had contact w/ anyone I am quite literally trying to just exsist.
 <br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Cookies&left_color=%23f5df51&right_color=%23f4c38a)
 <br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Edu+VIC+WA+NT+Hand&weight=500&pause=1000&color=F7D927&background=FF89DD00&center=true&vCenter=true&width=435&lines=Astro+%2C+my+Moon+%2C+I+love+you.;Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
+<br><p align="center"> theme revamp soon.
 
 <br><p align="center"><img width="1664" src="https://github.com/user-attachments/assets/76bb960a-519e-43c0-81d2-533b95cf375d" />
 <br><p align="center"> ${\textsf{\color{#F7E283}.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅}}$
