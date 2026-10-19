@@ -10,7 +10,7 @@
 <br><p align="center">${\textsf{\color{#A3A3A3}╭─────────────────────────────── · · ୨୧ · ·───────────────────────────────╮}}$
 <br><p align="center">${\textsf{\color{#919191}𖥻 ׁ ׅ  General info! ﹒  ◡◡}}$
 <br><p align="center">${\textsf{\color{#858585}── .✦ Indie or Ginger , 18 . Under 15 hvy dni Ginger fictkin , Semi sharing Astro Yume ── .✦}}$ 
-<br><p align="center">${\textsf{\color{#FAE898}╰┈➤ Bigender + Omnisexual ;  She / him pref , they is ok if close!⊹*.★}}$
+<br><p align="center">${\textsf{\color{#000000}╰┈➤ Bigender + Omnisexual ;  She / him pref , they is ok if close!⊹*.★}}$
 <br><p align="center">${\textsf{\color{#A3A3A3}╰───────────────────────────────· · ୨୧ · ·────────────────────────────────╯}}$
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 
@@ -19,9 +19,9 @@
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 <br><p align="center">${\textsf{\color{#A3A3A3}╭─────────────────────────────── · · ୨୧ · ·───────────────────────────────╮}}$
 <br><p align="center"> ${\textsf{\color{#858585}── .✦Int with caution at all times , I get paranoid EXTREMELY easily. ⋆⭒˚.⋆}}$
-<br><p align="center"> ${\textsf{\color{#F7E283}╰┈➤Bipolar I , Depression , ADHD . Unmedicated }}$
-<br><p align="center">${\textsf{\color{#F7E283} ╰┈➤Mood swings QUICKLY , don't take it to heart please . . }}
-$<br><p align="center">${\textsf{\color{#F7E283}╰┈➤Don't force your way into my circle . I will not be nice about it.}}$
+<br><p align="center"> ${\textsf{\color{#000000}╰┈➤Bipolar I , Depression , ADHD . Unmedicated }}$
+<br><p align="center">${\textsf{\color{#999999} ╰┈➤Mood swings QUICKLY , don't take it to heart please . . }}
+$<br><p align="center">${\textsf{\color{#FFFFFF}╰┈➤Don't force your way into my circle . I will not be nice about it.}}$
 <br><p align="center">${\textsf{\color{#A3A3A3}╰───────────────────────────────· · ୨୧ · ·────────────────────────────────╯}}$
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 <br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/6f8df28d-4668-4f47-8004-3afa75b50406" />
@@ -30,9 +30,9 @@ $<br><p align="center">${\textsf{\color{#F7E283}╰┈➤Don't force your way in
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 <br><p align="center">${\textsf{\color{#A3A3A3}╭─────────────────────────────── · · ୨୧ · ·───────────────────────────────╮}}$
 <br><p align="center"> ${\textsf{\color{#858585}── .✦Pts official Ginger the cookie ! ⋆⭒˚.⋆}}$
-<br><p align="center"> ${\textsf{\color{#F7E283}╰┈➤ Do not Copy or take inspo from my skins without asking please ! }}$
-<br><p align="center">${\textsf{\color{#F7E283} ╰┈➤ C+H only okay if my skin name says so ! Or whisper and ask me ! Im usually offtab !!}}
-$<br><p align="center">${\textsf{\color{#F7E283}╰┈➤  Spawn  + caves  + club on ss2, or with my partner !}}$
+<br><p align="center"> ${\textsf{\color{#000000}╰┈➤ Do not Copy or take inspo from my skins without asking please ! }}$
+<br><p align="center">${\textsf{\color{#999999} ╰┈➤ C+H only okay if my skin name says so ! Or whisper and ask me ! Im usually offtab !!}}
+$<br><p align="center">${\textsf{\color{#FFFFFF}╰┈➤  Spawn  + caves  + club on ss2, or with my partner !}}$
 <br><p align="center">${\textsf{\color{#A3A3A3}╰───────────────────────────────· · ୨୧ · ·────────────────────────────────╯}}$
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 <br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/81a80efd-8332-4bf1-a051-bf6120f59c7e" />
@@ -40,8 +40,8 @@ $<br><p align="center">${\textsf{\color{#F7E283}╰┈➤  Spawn  + caves  + clu
 <br><p align="center">${\textsf{\color{#A3A3A3}╭─────────────────────────────── · · ୨୧ · ·───────────────────────────────╮}}$
 <br><p align="center"> ${\textsf{\color{#919191}𖥻 ׁ ׅ  Ata + moots ﹒  ◡◡}}$
 <br><p align="center"> ${\textsf{\color{#858585}── .✦}}$[ATA](https://sweetsugar.atabook.org/)
-<br><p align="center">${\textsf{\color{#F7E283} ╰┈➤}}$ [My moon<3](https://github.com/sp4ceb3rry) [Kai !](https://github.com/CosmoThePastryy) [ROTZ / VEE !](https://github.com/neverwanted2dance) [Aether !](https://github.com/MrNovalite) [BEN!](https://github.com/benbatz) [STINKY !](https://github.com/stinkyrustyfork) [NOE !!](https://github.com/SweetTenshi) [Devan!!](https://github.com/devanreedirl) [Donna!](https://github.com/PorcelainDolls) [Pawn !](https://github.com/dicedrevival) [Avery!](https://github.com/SweetDeclaration)
-<br><p align="center">${\textsf{\color{#F7E283}╰┈➤ NO.1 MOONCOOKIE ENTHUSIAST ITS ME AND MY BF FR FR OK? OK!!}}$
+<br><p align="center">${\textsf{\color{#000000} ╰┈➤}}$ [My moon<3](https://github.com/sp4ceb3rry) [Kai !](https://github.com/CosmoThePastryy) [ROTZ / VEE !](https://github.com/neverwanted2dance) [Aether !](https://github.com/MrNovalite) [BEN!](https://github.com/benbatz) [STINKY !](https://github.com/stinkyrustyfork) [NOE !!](https://github.com/SweetTenshi) [Devan!!](https://github.com/devanreedirl) [Donna!](https://github.com/PorcelainDolls) [Pawn !](https://github.com/dicedrevival) [Avery!](https://github.com/SweetDeclaration)
+<br><p align="center">${\textsf{\color{#999999}╰┈➤ NO.1 MOONCOOKIE ENTHUSIAST ITS ME AND MY BF FR FR OK? OK!!}}$
 <br><p align="center">${\textsf{\color{#A3A3A3}╰───────────────────────────────· · ୨୧ · ·────────────────────────────────╯}}$
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 <br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/cb400023-ba54-4f0e-a119-602b91bcbe52" />
@@ -78,7 +78,7 @@ All of my pt awards / nominations ! ty to you all for nominating and adding me!!
 <br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/8440e240-7cb7-487b-a6da-56a3b08da41f" />
 
 
-[-# dividers not mine , credits 2 bronzewasp on tumblr..](https://www.tumblr.com/bronzewasp)
+[-# dividers not mine , credits 2 anitalenia on tumblr..](https://www.tumblr.com/anitalenia)
 
 
 
