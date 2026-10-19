@@ -5,7 +5,7 @@
 <br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=IM+Fell+English+SC&weight=500&pause=1000&color=FFFFFF&background=FF89DD00&center=true&vCenter=true&width=435&lines=Astro+%2C+Please+be+careful!;I+worry+for+you%2C+my+darling+Moon..;Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
 <br><p align="center"> theme revamp soon.
 
-<br><p align="center"><img width="2048"  src="https://github.com/user-attachments/assets/1df37b0e-86e1-457f-85cf-23af0a498571" />
+<br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/be3466af-c983-4581-a4ef-7f575a5c7fe0" />
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 <br><p align="center">${\textsf{\color{#A3A3A3}╭─────────────────────────────── · · ୨୧ · ·───────────────────────────────╮}}$
 <br><p align="center">${\textsf{\color{#919191}𖥻 ׁ ׅ  General info! ﹒  ◡◡}}$
@@ -14,7 +14,7 @@
 <br><p align="center">${\textsf{\color{#A3A3A3}╰───────────────────────────────· · ୨୧ · ·────────────────────────────────╯}}$
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 
-<br><p align="center"><img width="1847" src="https://github.com/user-attachments/assets/4470098a-a820-4520-b27b-e3927d7cf129" />
+<br><p align="center"><<img width="2048" src="https://github.com/user-attachments/assets/4ade73bf-d413-4334-8398-841cf548e032" />
 <br><p align="center"> ${\textsf{\color{#919191}𖥻 ׁ ׅ  BFYI ! ﹒  ◡◡}}$
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 <br><p align="center">${\textsf{\color{#A3A3A3}╭─────────────────────────────── · · ୨୧ · ·───────────────────────────────╮}}$
@@ -24,7 +24,7 @@
 $<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Don't force your way into my circle . I will not be nice about it.}}$
 <br><p align="center">${\textsf{\color{#A3A3A3}╰───────────────────────────────· · ୨୧ · ·────────────────────────────────╯}}$
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
-<br><p align="center"> <img width="1902" src="https://github.com/user-attachments/assets/8b30435a-97a0-4160-9bdb-9f2861226fdf" />
+<br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/6f8df28d-4668-4f47-8004-3afa75b50406" />
 
 <br><p align="center"> ${\textsf{\color{#919191}𖥻 ׁ ׅ  other info ! ﹒  ◡◡}}$
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
@@ -35,7 +35,7 @@ $<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Don't force y
 $<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Spawn , Caves +Club map are where you will find me ! Or w/ Partner + Party !!}}$
 <br><p align="center">${\textsf{\color{#A3A3A3}╰───────────────────────────────· · ୨୧ · ·────────────────────────────────╯}}$
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
-<br><p align="center"> <img width="1657" src="https://github.com/user-attachments/assets/9ac94172-db2b-4bde-b72c-2c121dac7db5" />
+<br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/81a80efd-8332-4bf1-a051-bf6120f59c7e" />
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 <br><p align="center">${\textsf{\color{#A3A3A3}╭─────────────────────────────── · · ୨୧ · ·───────────────────────────────╮}}$
 <br><p align="center"> ${\textsf{\color{#919191}𖥻 ׁ ׅ  Ata + moots ﹒  ◡◡}}$
@@ -44,7 +44,7 @@ $<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Spawn , Caves
 <br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑ NO.1 MOONCOOKIE ENTHUSIAST ITS ME AND MY BF FR FR OK? OK!!}}$
 <br><p align="center">${\textsf{\color{#A3A3A3}╰───────────────────────────────· · ୨୧ · ·────────────────────────────────╯}}$
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
-<br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/2eb4314f-fd6d-45d0-af2d-c18ad5a356e9" />
+<br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/cb400023-ba54-4f0e-a119-602b91bcbe52" />
 
 <br><p align="center">${\textsf{\color{#AAD4F9} Stamps ok?}}$ 
 
@@ -58,7 +58,7 @@ $<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Spawn , Caves
 <img width="150"  src="https://github.com/user-attachments/assets/35346244-9abf-4077-a2fc-b225373b3a2b" /><img width="99"  src="https://github.com/user-attachments/assets/e47e5de4-1dd1-431f-8bc0-d35a3d0fac4a" /><img width="99"  src="https://github.com/user-attachments/assets/0a867b6c-d34f-4925-8bed-b32b88d35f05" /><img width="99"  src="https://github.com/user-attachments/assets/5ad36708-535e-40a2-ab73-f1c9202a94c6" /><img width="99"  src="https://github.com/user-attachments/assets/57977f50-0628-44ac-971a-07bad028a964" /><img width="150"  src="https://github.com/user-attachments/assets/55119d9f-610f-4662-af5b-a6dafe48260f" /><img width="150"  src="https://github.com/user-attachments/assets/f3ed82c6-81f6-46c5-97fe-063f616948c8" />
 
 
-<br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/2eb4314f-fd6d-45d0-af2d-c18ad5a356e9" />
+<br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/3fa98317-66d1-4fa9-818b-9d6c3913b700" />
 
 All of my pt awards / nominations ! ty to you all for nominating and adding me!!
 
@@ -75,7 +75,8 @@ All of my pt awards / nominations ! ty to you all for nominating and adding me!!
 
 
 
-<br><p align="center"> <img width="1902" src="https://github.com/user-attachments/assets/1fdbdeba-0bc6-4df6-aae6-1a3760a99de0" />
+<br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/8440e240-7cb7-487b-a6da-56a3b08da41f" />
+
 
 [-# dividers not mine , credits 2 bronzewasp on tumblr..](https://www.tumblr.com/bronzewasp)
 
