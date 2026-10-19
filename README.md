@@ -8,14 +8,14 @@
 <br><p align="center"><img width="2048"  src="https://github.com/user-attachments/assets/1df37b0e-86e1-457f-85cf-23af0a498571" />
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 <br><p align="center">${\textsf{\color{#A3A3A3}╭─────────────────────────────── · · ୨୧ · ·───────────────────────────────╮}}$
-<br><p align="center">${\textsf{\color{#FACE87}⋆⭒˚.⋆Basic Info⋆⭒˚.⋆}}$
+<br><p align="center">${\textsf{\color{#919191}𖥻 ׁ ׅ  General info! ﹒  ◡◡}}$
 <br><p align="center">${\textsf{\color{#FAD598}⋆.𐙚 ̊Indie or Ginger}}$ ${\textsf{\color{#F7C472} , 18 . Under 15 hvy dni}}$ ${\textsf{\color{#FAD598} Ginger fictkin , Semi sharing Astro Yume .⋆.𐙚 ̊}}$ 
 <br><p align="center">${\textsf{\color{#FAE898}⊹*.★ Bigender + Omnisexual ;  She / him pref , they is ok if close!⊹*.★}}$
 <br><p align="center">${\textsf{\color{#A3A3A3}╰───────────────────────────────· · ୨୧ · ·────────────────────────────────╯}}$
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 
 <br><p align="center"><img width="1847" src="https://github.com/user-attachments/assets/4470098a-a820-4520-b27b-e3927d7cf129" />
-<br><p align="center"> ${\textsf{\color{#F7E283}⋆⭒˚.⋆BFYI⋆⭒˚.⋆}}$
+<br><p align="center"> ${\textsf{\color{#919191}𖥻 ׁ ׅ  BFYI ! ﹒  ◡◡}}$
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 <br><p align="center">${\textsf{\color{#A3A3A3}╭────── · · ୨୧ · · ──────────────────────────────────────────────────────────╮}}$
 <br><p align="center"> ${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Int with caution at all times , I get paranoid EXTREMELY easily. ⋆⭒˚.⋆}}$
@@ -26,7 +26,7 @@ $<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Don't force y
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 <br><p align="center"> <img width="1902" src="https://github.com/user-attachments/assets/8b30435a-97a0-4160-9bdb-9f2861226fdf" />
 
-<br><p align="center"> ${\textsf{\color{#F7E283}⋆ · ★ Other things ★ · ⋆}}$
+<br><p align="center"> ${\textsf{\color{#919191}𖥻 ׁ ׅ  other info ! ﹒  ◡◡}}$
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 <br><p align="center">${\textsf{\color{#A3A3A3}╭────── · · ୨୧ · · ──────────────────────────────────────────────────────────╮}}$
 <br><p align="center"> ${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Pts official Ginger the cookie ! ⋆⭒˚.⋆}}$
@@ -38,7 +38,7 @@ $<br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑Spawn , Caves
 <br><p align="center"> <img width="1657" src="https://github.com/user-attachments/assets/9ac94172-db2b-4bde-b72c-2c121dac7db5" />
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 <br><p align="center">${\textsf{\color{#A3A3A3}╭────── · · ୨୧ · · ──────────────────────────────────────────────────────────╮}}$
-<br><p align="center"> ${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑ATA + MOOTS <3 (IF U WANNA BE ADDED , ASK ME !!⋆⭒˚.⋆}}$
+<br><p align="center"> ${\textsf{\color{#919191}𖥻 ׁ ׅ  Ata + moots ﹒  ◡◡}}$
 <br><p align="center"> ${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑}}$[ATA](https://sweetsugar.atabook.org/)
 <br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑}}$ [My moon<3](https://github.com/sp4ceb3rry) [Kai !](https://github.com/CosmoThePastryy) [ROTZ / VEE !](https://github.com/neverwanted2dance) [Aether !](https://github.com/MrNovalite) [BEN!](https://github.com/benbatz) [STINKY !](https://github.com/stinkyrustyfork) [NOE !!](https://github.com/SweetTenshi) [Devan!!](https://github.com/devanreedirl) [Donna!](https://github.com/PorcelainDolls) [Pawn !](https://github.com/dicedrevival) [Avery!](https://github.com/SweetDeclaration)
 <br><p align="center">${\textsf{\color{#F7E283}˖ ࣪⊹๋࣭ ⭑ NO.1 MOONCOOKIE ENTHUSIAST ITS ME AND MY BF FR FR OK? OK!!}}$
