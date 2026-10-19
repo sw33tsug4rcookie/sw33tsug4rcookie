@@ -1,6 +1,4 @@
-<br><p align="center"> do not associate me with the actions of my friends . js bcs they do something , does not mean i agree/do the same things.
-<br><p align="center"> Do not associate me w/ the fictionkilled family. I've left safe server 1 , and I will not be seen there until everything stops happening. Do NOT associate me with
-<br><p align="center"> whatever goes on there. I have not had contact w/ anyone I am quite literally trying to just exsist.
+<br><p align="center"> No longer on ss1, find me on ss2 if needed. will only be on ss1 with my partner. do not associate me  w/ the fictionkilled family + other situations. I am not part of it. thank you.
 <br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Cookies&left_color=%23000000&right_color=%23393b3c)
 <br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=IM+Fell+English+SC&weight=500&pause=1000&color=FFFFFF&background=FF89DD00&center=true&vCenter=true&width=435&lines=Astro+%2C+Please+be+careful!;I+worry+for+you%2C+my+darling+Moon..;Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
 <br><p align="center"> theme revamp soon.
