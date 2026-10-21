@@ -1,4 +1,4 @@
-<br><p align="center"> No longer on ss1, find me on ss2 if needed. will only be on ss1 with my partner. do not associate me  w/ the fictionkilled family + other situations. I am not part of it. thank you.
+<br><p align="center"> Mainly @spawn on ss2 , or on island map! on ss1 you can find me in caves or market ! Only @spawn with friends / partner. dni if you only care abt issues / drama
 <br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Cookies&left_color=%23000000&right_color=%23393b3c)
 <br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=IM+Fell+English+SC&weight=500&pause=1000&color=FFFFFF&background=FF89DD00&center=true&vCenter=true&width=435&lines=Astro+%2C+Please+be+careful!;I+worry+for+you%2C+my+darling+Moon..;Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
 <br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/be3466af-c983-4581-a4ef-7f575a5c7fe0" />
