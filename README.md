@@ -58,7 +58,7 @@ $<br><p align="center">${\textsf{\color{#FFFFFF}╰┈➤  Spawn  + caves  + clu
 
 All of my pt awards / nominations ! ty to you all for nominating and adding me!!
 
-<img width="414" src="https://github.com/user-attachments/assets/4ce67cae-a70a-4eb3-93e7-f3171cfc2c8a" /> 
+<img width="414" src="https://github.com/user-attachments/assets/4ce67cae-a70a-4eb3-93e7-f3171cfc2c8a" /> <img width="500" height="33" alt="image" src="https://github.com/user-attachments/assets/2c0a8c83-a554-4197-a646-faf56661a912" />
 <img width="809"  src="https://github.com/user-attachments/assets/d821db7c-1548-43dd-be7c-0395479f511a" /> <img width="372" height="41" alt="image" src="https://github.com/user-attachments/assets/f7769433-a4ec-4431-8458-53ac9d60bd74" /><img width="354" height="33" alt="image" src="https://github.com/user-attachments/assets/93106f88-aa29-4039-8291-90c60c79ad61" />
 <img width="456" height="43" alt="image" src="https://github.com/user-attachments/assets/800ac96d-6903-4feb-b7e8-71363d39647d" />
 <img width="363" height="31" alt="image" src="https://github.com/user-attachments/assets/967d91bb-c9f6-4d3d-9654-f19ba2d28719" />
