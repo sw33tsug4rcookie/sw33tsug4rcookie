@@ -5,7 +5,7 @@
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 <br><p align="center">${\textsf{\color{#A3A3A3}╭─────────────────────────────── · · ୨୧ · ·───────────────────────────────╮}}$
 <br><p align="center">${\textsf{\color{#919191}𖥻 ׁ ׅ  General info! ﹒  ◡◡}}$
-<br><p align="center">${\textsf{\color{#858585}── .✦ Indie or Ginger , 18 . Under 15 hvy dni Ginger fictkin , Semi sharing Astro Yume ── .✦}}$ 
+<br><p align="center">${\textsf{\color{#858585}── .✦ Indie or Ginger , 18 . Under 15 hvy dni Ginger fictkin , Non Sharing Astro yume , Sharing Waxwell Yume ── .✦}}$ 
 <br><p align="center">${\textsf{\color{#000000}╰┈➤ Bigender + Omnisexual ;  She / him pref , they is ok if close!⊹*.★}}$
 <br><p align="center">${\textsf{\color{#A3A3A3}╰───────────────────────────────· · ୨୧ · ·────────────────────────────────╯}}$
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
