@@ -1,7 +1,7 @@
 <br><p align="center"> Theme Remake soon ! Dni Drama + people only concerned with issues
 <br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Sweets&left_color=%23c21414&right_color=%23f5cebd)
 <br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Edu+VIC+WA+NT+Hand&weight=500&pause=1000&color=F72E4B&background=FF89DD00&center=true&vCenter=true&width=435&lines=Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
-<br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/be3466af-c983-4581-a4ef-7f575a5c7fe0" />
+<br><p align="center"><img width="2048"  src="https://github.com/user-attachments/assets/629cf405-7b5a-4d65-84cf-3a25f84b8347" />
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 <br><p align="center">${\textsf{\color{#A3A3A3}╭─────────────────────────────── · · ୨୧ · ·───────────────────────────────╮}}$
 <br><p align="center">${\textsf{\color{#919191}𖥻 ׁ ׅ  General info! ﹒  ◡◡}}$
@@ -71,7 +71,8 @@ All of my pt awards / nominations ! ty to you all for nominating and adding me!!
 
 
 
-<br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/8440e240-7cb7-487b-a6da-56a3b08da41f" />
+<br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/f38737d9-3224-4cf3-a4fa-1eac32a7a624" />
+
 
 
 [-# dividers not mine , credits 2 anitalenia on tumblr..](https://www.tumblr.com/anitalenia)
