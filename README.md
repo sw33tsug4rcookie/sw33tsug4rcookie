@@ -5,7 +5,7 @@
 <br><p align="center"> ${\textsf{\color{#D20F0F}͙꧁──────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ──────꧂}}$
 <br><p align="center">${\textsf{\color{#06B10C}𖥻 ׁ ׅ  Indie / Ginger ﹒  ◡◡}}$
 <br><p align="center">${\textsf{\color{#D20F0F}͙── .✦ Ginger fictkin , (NS) Astro Yume , (SS) Waxwell Yume . taken ── .✦}}$ 
-<br><p align="center">${\textsf{\color{#06B10C}╰┈➤ Bigender + Omnisexual ;  She / him pref , they is ok if close!⊹*.★}}$
+<br><p align="center">${\textsf{\color{#06B10C}╰┈➤ Bigender + Omnisexual ;  She / him  ; 18 ⊹*.★}}$
 <br><p align="center">${\textsf{\color{#D20F0F}꧁──────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ──────꧂}}$
 <br><p align="center">${\textsf{\color{#06B10C}𖥻 ׁ ׅ  DNI ﹒  ◡◡}}$
 <br><p align="center">${\textsf{\color{#D20F0F}── Any1 under 15 ── .✦}}$ 
