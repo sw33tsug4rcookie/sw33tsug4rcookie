@@ -8,6 +8,12 @@
 <br><p align="center">${\textsf{\color{#858585}── .✦ Ginger fictkin , (NS) Astro Yume , (SS) Waxwell Yume . taken ── .✦}}$ 
 <br><p align="center">${\textsf{\color{#000000}╰┈➤ Bigender + Omnisexual ;  She / him pref , they is ok if close!⊹*.★}}$
 <br><p align="center">${\textsf{\color{#A3A3A3}꧁──────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ──────꧂}}$
+<br><p align="center">${\textsf{\color{#919191}𖥻 ׁ ׅ  DNI ﹒  ◡◡}}$
+<br><p align="center">${\textsf{\color{#858585}── Any1 under 15 ── .✦}}$ 
+<br><p align="center">${\textsf{\color{#858585}── FFR . ── .✦}}$ 
+<br><p align="center">${\textsf{\color{#858585}── TWS ── .✦}}$ 
+<br><p align="center">${\textsf{\color{#858585}── anyone else on my dni on carrd ── .✦}}$ 
+<br><p align="center">${\textsf{\color{#000000}╰┈➤ Ex friends unless I have reached out ⊹*.★}}$
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 
 
