@@ -10,49 +10,6 @@
 <br><p align="center">${\textsf{\color{#A3A3A3}╰───────────────────────────────· · ୨୧ · ·────────────────────────────────╯}}$
 <br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
 
-<br><p align="center"><<img width="2048" src="https://github.com/user-attachments/assets/4ade73bf-d413-4334-8398-841cf548e032" />
-<br><p align="center"> ${\textsf{\color{#919191}𖥻 ׁ ׅ  BFYI ! ﹒  ◡◡}}$
-<br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
-<br><p align="center">${\textsf{\color{#A3A3A3}╭─────────────────────────────── · · ୨୧ · ·───────────────────────────────╮}}$
-<br><p align="center"> ${\textsf{\color{#858585}── .✦Int with caution at all times , I get paranoid EXTREMELY easily. ⋆⭒˚.⋆}}$
-<br><p align="center"> ${\textsf{\color{#000000}╰┈➤Bipolar I , Depression , ADHD . Unmedicated }}$
-<br><p align="center">${\textsf{\color{#999999} ╰┈➤Mood swings QUICKLY , don't take it to heart please . . }}
-$<br><p align="center">${\textsf{\color{#FFFFFF}╰┈➤Don't force your way into my circle . I will not be nice about it.}}$
-<br><p align="center">${\textsf{\color{#A3A3A3}╰───────────────────────────────· · ୨୧ · ·────────────────────────────────╯}}$
-<br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
-<br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/6f8df28d-4668-4f47-8004-3afa75b50406" />
-
-<br><p align="center"> ${\textsf{\color{#919191}𖥻 ׁ ׅ  other info ! ﹒  ◡◡}}$
-<br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
-<br><p align="center">${\textsf{\color{#A3A3A3}╭─────────────────────────────── · · ୨୧ · ·───────────────────────────────╮}}$
-<br><p align="center"> ${\textsf{\color{#858585}── .✦Pts official Ginger the cookie ! ⋆⭒˚.⋆}}$
-<br><p align="center"> ${\textsf{\color{#000000}╰┈➤ Do not Copy or take inspo from my skins without asking please ! }}$
-<br><p align="center">${\textsf{\color{#999999} ╰┈➤ C+H only okay if my skin name says so ! Or whisper and ask me ! Im usually offtab !!}}
-$<br><p align="center">${\textsf{\color{#FFFFFF}╰┈➤  Spawn  + caves  + club on ss2, or with my partner !}}$
-<br><p align="center">${\textsf{\color{#A3A3A3}╰───────────────────────────────· · ୨୧ · ·────────────────────────────────╯}}$
-<br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
-<br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/81a80efd-8332-4bf1-a051-bf6120f59c7e" />
-<br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
-<br><p align="center">${\textsf{\color{#A3A3A3}╭─────────────────────────────── · · ୨୧ · ·───────────────────────────────╮}}$
-<br><p align="center"> ${\textsf{\color{#919191}𖥻 ׁ ׅ  Ata + moots ﹒  ◡◡}}$
-<br><p align="center"> ${\textsf{\color{#858585}── .✦}}$[ATA](https://sweetsugar.atabook.org/)
-<br><p align="center">${\textsf{\color{#000000} ╰┈➤}}$ [My moon<3](https://github.com/sp4ceb3rry) [MY FAV BROTHER EVR](https://github.com/MrSeedly) [MY FAV COUSIN !](https://github.com/CosmoThePastryy) [ROTZ / VEE !](https://github.com/neverwanted2dance) [Aether !](https://github.com/MrNovalite) [BEN!](https://github.com/benbatz) [STINKY !](https://github.com/stinkyrustyfork) [NOE !!](https://github.com/SweetTenshi) [Devan!!](https://github.com/devanreedirl) [Donna!](https://github.com/PorcelainDolls) [Pawn !](https://github.com/dicedrevival) [Avery!](https://github.com/SweetDeclaration)
-<br><p align="center">${\textsf{\color{#999999}╰┈➤ NO.1 MOONCOOKIE ENTHUSIAST ITS ME AND MY BF FR FR OK? OK!!}}$
-<br><p align="center">${\textsf{\color{#A3A3A3}╰───────────────────────────────· · ୨୧ · ·────────────────────────────────╯}}$
-<br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
-<br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/cb400023-ba54-4f0e-a119-602b91bcbe52" />
-
-<br><p align="center">${\textsf{\color{#AAD4F9} Stamps ok?}}$ 
-
-<img width="86"  src="https://github.com/user-attachments/assets/7e660c9b-f0b9-48b0-b16d-65757ae6a77d" />
-<img width="99"  src="https://github.com/user-attachments/assets/c05c74fb-0bf9-4da9-b001-3fae49754782" />
-<img width="106"  src="https://github.com/user-attachments/assets/3ba56861-a784-48f8-bea7-1a884bf0bff2" />
-<img width="99"  src="https://github.com/user-attachments/assets/20164821-9d1d-4ea4-b015-c34c2fca515f" />
-<img width="99"  src="https://github.com/user-attachments/assets/51677b4e-94cb-4ac6-845f-0c16c1e5bf86" />
-<img width="99"  src="https://github.com/user-attachments/assets/dce2f5ce-bd30-4274-a574-a4f0089d6649" />
-<img width="99"  src="https://github.com/user-attachments/assets/04e96416-4ff0-43fe-bdc0-0235c9f95c3a" />
-<img width="150"  src="https://github.com/user-attachments/assets/35346244-9abf-4077-a2fc-b225373b3a2b" /><img width="99"  src="https://github.com/user-attachments/assets/e47e5de4-1dd1-431f-8bc0-d35a3d0fac4a" /><img width="99"  src="https://github.com/user-attachments/assets/0a867b6c-d34f-4925-8bed-b32b88d35f05" /><img width="99"  src="https://github.com/user-attachments/assets/5ad36708-535e-40a2-ab73-f1c9202a94c6" /><img width="99"  src="https://github.com/user-attachments/assets/57977f50-0628-44ac-971a-07bad028a964" /><img width="150"  src="https://github.com/user-attachments/assets/55119d9f-610f-4662-af5b-a6dafe48260f" /><img width="150"  src="https://github.com/user-attachments/assets/f3ed82c6-81f6-46c5-97fe-063f616948c8" />
-
 
 <br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/3fa98317-66d1-4fa9-818b-9d6c3913b700" />
 
