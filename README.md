@@ -2,19 +2,18 @@
 <br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Sweets&left_color=%23c21414&right_color=%23f5cebd)
 <br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Edu+VIC+WA+NT+Hand&weight=500&pause=1000&color=F72E4B&background=FF89DD00&center=true&vCenter=true&width=435&lines=Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
 <br><p align="center"><img width="2048"  src="https://github.com/user-attachments/assets/629cf405-7b5a-4d65-84cf-3a25f84b8347" />
-<br><p align="center"> ${\textsf{\color{#CCCCCC}͙꧁──────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ──────꧂}}$
-<br><p align="center">${\textsf{\color{#A3A3A3}╭─────────────────────────────── · · ୨୧ · ·───────────────────────────────╮}}$
-<br><p align="center">${\textsf{\color{#919191}𖥻 ׁ ׅ  Indie / Ginger ﹒  ◡◡}}$
-<br><p align="center">${\textsf{\color{#858585}── .✦ Ginger fictkin , (NS) Astro Yume , (SS) Waxwell Yume . taken ── .✦}}$ 
-<br><p align="center">${\textsf{\color{#000000}╰┈➤ Bigender + Omnisexual ;  She / him pref , they is ok if close!⊹*.★}}$
-<br><p align="center">${\textsf{\color{#A3A3A3}꧁──────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ──────꧂}}$
-<br><p align="center">${\textsf{\color{#919191}𖥻 ׁ ׅ  DNI ﹒  ◡◡}}$
-<br><p align="center">${\textsf{\color{#858585}── Any1 under 15 ── .✦}}$ 
-<br><p align="center">${\textsf{\color{#858585}── FFR . ── .✦}}$ 
-<br><p align="center">${\textsf{\color{#858585}── TWS ── .✦}}$ 
-<br><p align="center">${\textsf{\color{#858585}── anyone else on my dni on carrd ── .✦}}$ 
-<br><p align="center">${\textsf{\color{#000000}╰┈➤ Ex friends unless I have reached out ⊹*.★}}$
-<br><p align="center"> ${\textsf{\color{#CCCCCC}· · ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── ·꒰ঌ·✦·໒꒱· ────── ꒰ঌ·✦·໒꒱ ────── · ·}}$
+<br><p align="center"> ${\textsf{\color{#D20F0F}͙꧁──────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ──────꧂}}$
+<br><p align="center">${\textsf{\color{#06B10C}𖥻 ׁ ׅ  Indie / Ginger ﹒  ◡◡}}$
+<br><p align="center">${\textsf{\color{#D20F0F}͙── .✦ Ginger fictkin , (NS) Astro Yume , (SS) Waxwell Yume . taken ── .✦}}$ 
+<br><p align="center">${\textsf{\color{#06B10C}╰┈➤ Bigender + Omnisexual ;  She / him pref , they is ok if close!⊹*.★}}$
+<br><p align="center">${\textsf{\color{#D20F0F}꧁──────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ──────꧂}}$
+<br><p align="center">${\textsf{\color{#06B10C}𖥻 ׁ ׅ  DNI ﹒  ◡◡}}$
+<br><p align="center">${\textsf{\color{#D20F0F}── Any1 under 15 ── .✦}}$ 
+<br><p align="center">${\textsf{\color{#06B10C}── FFR . ── .✦}}$ 
+<br><p align="center">${\textsf{\color{#D20F0F}── TWS ── .✦}}$ 
+<br><p align="center">${\textsf{\color{#06B10C}── anyone else on my dni on carrd ── .✦}}$ 
+<br><p align="center">${\textsf{\color{#D20F0F}╰┈➤ Ex friends unless I have reached out ⊹*.★}}$
+<br><p align="center">${\textsf{\color{#06B10C}꧁──────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ──────꧂}}$
 
 
 <br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/77653d8c-0a73-4041-aab4-6f9655ed4899" />
