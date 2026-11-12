@@ -9,7 +9,7 @@
 <br><p align="center">${\textsf{\color{#06B10C}𖥻 ׁ ׅ  DNI ﹒  ◡◡}}$
 <br><p align="center">${\textsf{\color{#D20F0F}── Any1 under 15 ── .✦}}$ 
 <br><p align="center">${\textsf{\color{#06B10C}── FFR . ── .✦}}$ 
-<br><p align="center">${\textsf{\color{#D20F0F}── TWS ── .✦}}$ 
+<br><p align="center">${\textsf{\color{#D20F0F}── TWS (IWVEC. I will not reachout first.)  ── .✦}}$ 
 <br><p align="center">${\textsf{\color{#06B10C}── anyone else on my dni on carrd ── .✦}}$ 
 <br><p align="center">${\textsf{\color{#D20F0F}╰┈➤ Ex friends unless I have reached out ⊹*.★}}$
 <br><p align="center">${\textsf{\color{#06B10C}꧁──────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ──────꧂}}$
