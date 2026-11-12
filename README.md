@@ -1,5 +1,4 @@
-<br><p align="center"> Theme Remake soon ! Dni Drama + people only concerned with issues
-<br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Sweets&left_color=%23c21414&right_color=%23f5cebd)
+<br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Sweets&left_color=%23c00707&right_color=%230e880c)
 <br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Edu+VIC+WA+NT+Hand&weight=500&pause=1000&color=F72E4B&background=FF89DD00&center=true&vCenter=true&width=435&lines=Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
 <br><p align="center"><img width="2048"  src="https://github.com/user-attachments/assets/629cf405-7b5a-4d65-84cf-3a25f84b8347" />
 <br><p align="center"> ${\textsf{\color{#D20F0F}͙꧁──────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ────────────ஓ๑♡๑ஓ──────꧂}}$
